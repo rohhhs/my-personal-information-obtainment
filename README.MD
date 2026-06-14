@@ -1,4 +1,10 @@
-Sorry for specific data , 
+# The Dataset
+
+- Dataset was started to be collected afterall I was not available to pay education-bills and study in desired University like ITMO , MIT , further also MPtI excluding СПБГУ , МГУ 
+- Dataset was started as a boredom of new 2019 year by listening films like the first of the dataset "Ready Player One" and second "Black Panter" . 
+
+
+Sorry for specific data , the policy of data was intruded only a person gathering the data except 3rd party usually , excepting real questions to 3rd party people and their word-of-agreement to be transcribed and publicly published or privately on local machine
 
 ### How to find Fart amount according basic data of household and communal use of water supply and sleep as inactivity
 
@@ -16,3 +22,4 @@ Sometimes kid's belly pimp up with air and they start crying so in those things 
 
 !! Be sure that it might have mistakes and communication errors , do not rely strictly to words and use only as a partially-competent reference 
 ! Be sure I am not a doctor writing this content but I do precisely and trully was written the data as my honor and truth are present without a lie . 
+
