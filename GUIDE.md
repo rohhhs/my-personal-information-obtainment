@@ -1,0 +1,7 @@
+The most prominent use of day counting apps is primary for women and for periods , overwise in 7th grade in school was a lesson of differense of uretrus between male and female and got a lot of jokes in gymnasium .
+
+The correlation of women over the dataset of periods ___no answer___ how to correlate the long 3 thousand day correlation . 
+
+Primary the idea of dataset laid down other the non-surgical methods of Computer Vision of different optic gadjets or measure instrumets of weight or in my personal opinion the sizes as sewing length auto ruller to measure the body bones.
+
+So the periods specifically unavailable to produce corrrelation otherwise region of Saint-Peteresburg and Dia Sys Pulse of weather conditions of 70 kg person of 0.9 or 0.4 in specific scenarios of data specification in different conditions , conjuncture .
